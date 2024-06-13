@@ -5,5 +5,4 @@ https://discord.gg/1985 & **rosettaa.**
 
 ```Görseller```
 
-[[[url=https://hizliresim.com/7l5dvly][img]https://i.hizliresim.com/7l5dvly.jpg[/img][/url]
-](https://hizliresim.com/7l5dvly)](https://hizliresim.com/7l5dvly)
+[https://hizliresim.com/1t3gj3f görsel]
