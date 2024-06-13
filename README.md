@@ -5,4 +5,4 @@ https://discord.gg/1985 & **rosettaa.**
 
 ```Görseller```
 
-[url=https://hizliresim.com/1t3gj3f][img]https://i.hizliresim.com/1t3gj3f.jpg[/img][/url]
+![image](https://github.com/xRosetta/rosetta-bots/assets/123220507/ddae245c-9580-4c9e-9af1-67018bbd3405)
