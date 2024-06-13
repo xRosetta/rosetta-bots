@@ -3,4 +3,6 @@
 https://discord.gg/1985 & **rosettaa.**
 
 
-```ASDASDAS```
+```Görseller```
+
+[url=https://hizliresim.com/7l5dvly][img]https://i.hizliresim.com/7l5dvly.jpg[/img][/url]
