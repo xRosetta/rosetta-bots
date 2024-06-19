@@ -5,6 +5,9 @@ https://discord.gg/1985 & **rosettaa.**
 
 ```Görseller```
 
+![image](https://github.com/xRosetta/rosetta-bots/assets/123220507/b8da7089-b668-4671-ab2c-de0222f21b74)
+
+![image](https://github.com/xRosetta/rosetta-bots/assets/123220507/e4619048-9639-4712-9d06-81879cf8790c)
 
 ![image](https://github.com/xRosetta/rosetta-bots/assets/123220507/b8a240ff-d2e3-4af6-9c38-20a9a3539d34)
 
