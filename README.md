@@ -39,3 +39,7 @@ https://discord.gg/1985 & **rosettaa.**
 ![image](https://github.com/xRosetta/rosetta-bots/assets/123220507/ceb15782-0b26-4f17-a194-048c4d02d41f)
 
 ![image](https://github.com/xRosetta/rosetta-bots/assets/123220507/f7c651f6-1f8d-462d-86d5-997ebca03bed)
+
+![image](https://github.com/xRosetta/rosetta-bots/assets/123220507/10ce4f06-efb2-4764-b1fc-1daa5f3f9464)
+
+![image](https://github.com/xRosetta/rosetta-bots/assets/123220507/82272e63-a96c-4c56-a962-3b697dda97ea)
