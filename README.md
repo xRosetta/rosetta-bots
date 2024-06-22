@@ -11,6 +11,10 @@ https://discord.gg/1985 & **rosettaa.**
 
 ![image](https://github.com/xRosetta/rosetta-bots/assets/123220507/c25f8347-587f-4e84-b77d-04766d77c632)
 
+![image](https://github.com/xRosetta/rosetta-bots/assets/123220507/f7681abe-ad86-499d-84a5-d59833c8b534)
+
+![image](https://github.com/xRosetta/rosetta-bots/assets/123220507/5497ffa5-7b0b-4ac2-9103-d4d6c97ffd91)
+
 ![image](https://github.com/xRosetta/rosetta-bots/assets/123220507/64cc7b44-54ad-498b-94e6-bba5624751e1)
 
 ![image](https://github.com/xRosetta/rosetta-bots/assets/123220507/b8da7089-b668-4671-ab2c-de0222f21b74)
